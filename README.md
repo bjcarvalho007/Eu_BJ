@@ -2,7 +2,7 @@
 - 🎓 Analise e desenvolvimento de sistemas <br>
 - 🚀 Futuro  Programador e desenvolvedor  <br>
 - ❤ filha ❤️, natureza🌻, Futebol ⚽ <br>
-
+- 📊<a target="_blank" href="https://github.com/bjcarvalho007/Certificados_"> Certificados_ </a> <br>
 
 
  
